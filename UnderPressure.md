@@ -1,0 +1,73 @@
+Under Pressure
+Queen & David Bowie
+
+You say New York, New York is dangerous
+'Cause you read that where you may
+Even a blind man could see that's not so
+Love, love, love, love, love
+Rah
+People on streets
+Ha ha haa ey
+Mm ba ba de
+Um bum ba de
+Um bu bu bum da de
+Why don't we give all that one more chance?
+Pressure pressure pressure pressure pressure
+Pressure pressure pressure pressure pressure
+Pushing down on me
+Pressing down on you
+No man asked for
+Under pressure that brings a building down
+Splits a family in two
+Puts people on streets
+Um ba ba be
+Um ba ba be
+De day da
+Ee day da, that's ok
+It's the terror of knowing
+What the world is about
+Watching some good friends
+Screaming 'Let me out'
+Pray tomorrow, gets me higher
+Pressure on people, people on streets
+Day day de day day de
+Day day de day day de
+Day day de day day de
+Day day de day day de
+Day day de day day de
+Ok
+Chipping around, kick my brains around the floor
+These are the days it never rains but it pours
+Ee do ba be
+Ee da ba ba ba
+Um bo bo
+Be lap
+People on streets (Ee da de da de)
+People on streets (Ee da de da de da de da)
+It's the terror of knowing
+What this world is about
+Watching some good friends
+Screaming 'Let me out'
+Tomorrow gets me higher, higher, high
+Pressure on people, people on streets
+Turned away from it all like a blind man
+Sat on a fence but it don't work
+Keep coming up with love but it's so slashed and torn
+Why, why, why?
+Love, love, love, love, love, love, love
+Insanity laughs, under pressure we're breaking
+Can't we give ourselves one more chance?
+Why can't we give love that one more chance?
+Why can't we give love, give love, give love, give love
+Give love, give love, give love, give love, give love?
+'Cause love's such an old fashioned word
+And love dares you to care for
+The people on the (People on streets) edge of the night
+And loves (People on streets) dares you to change our way of
+Caring about ourselves
+This is our last dance
+This is our last dance
+This is ourselves
+Under pressure
+Under pressure
+Pressure
