@@ -2,6 +2,11 @@
 
 Some exercises and training on Interactive Rebasing.
 
+## How to do the exercises:
+Checkout to the exercise branches and follow the instructions
+* `git branch` to list all branches. (`q` to leave the screen)
+* `git checkout exercise-1` to checkout to the exercise-1 branch
+
 ## What is rebasing?
 Assume the following history exists and the current branch is "topic":
 ```
