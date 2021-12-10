@@ -25,3 +25,13 @@ Didn't mean to make you cry,
 If I'm not back again this time tomorrow,
 Carry on, carry on as if nothing really matters
 ```
+```
+Too late, me timmme has come,
+Sends shivers down my spaiane, body's aching allll
+The time
+Goodbye, everybody, I've got to go,
+Gotta leave you all behind and face the truth
+Mama, oooh
+I don't want to die,
+I sometimes wish I'd never been borned at all.
+```
