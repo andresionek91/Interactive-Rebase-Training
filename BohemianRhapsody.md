@@ -27,7 +27,7 @@ Carry on, carry on as if nothing really matters
 ```
 ```
 Too late, my time has come,
-Sends shivers down my spaiane, body's aching all
+Sends shivers down my spine, body's aching all
 The time
 Goodbye, everybody, I've got to go,
 Gotta leave you all behind and face the truth
