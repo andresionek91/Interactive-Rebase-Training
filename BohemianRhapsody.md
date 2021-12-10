@@ -26,14 +26,14 @@ If I'm not back again this time tomorrow,
 Carry on, carry on as if nothing really matters
 ```
 ```
-Too late, me timmme has come,
-Sends shivers down my spaiane, body's aching allll
+Too late, my time has come,
+Sends shivers down my spaiane, body's aching all
 The time
 Goodbye, everybody, I've got to go,
 Gotta leave you all behind and face the truth
 Mama, oooh
 I don't want to die,
-I sometimes wish I'd never been borned at all.
+I sometimes wish I'd never been born at all.
 ```
 ```
 I see a little silhouetto of a man,
