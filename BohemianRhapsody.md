@@ -33,7 +33,7 @@ Goodbye, everybody, I've got to go,
 Gotta leave you all behind and face the truth
 Mama, oooh
 I don't want to die,
-I sometimes wish I'd never been born at all.
+I sometimes wish I'd never been borned at all.
 ```
 ```
 I see a little silhouetto of a man,
