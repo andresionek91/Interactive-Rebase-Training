@@ -35,3 +35,13 @@ Mama, oooh
 I don't want to die,
 I sometimes wish I'd never been borned at all.
 ```
+```
+I see a little silhouetto of a man,
+Scaramouch, Scaramouch, will you do the Fandango!
+```
+```
+Thunderbolts and lightning, very, very frightening me
+Galileo, Galileo
+Galileo, Galileo
+Galileo, Figaro - magnificoo
+```
